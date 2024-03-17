@@ -1,1 +1,0 @@
-# slgy-ry.github.io
